@@ -18,7 +18,7 @@ $\color{#ec8131}{\textbf{ “ WE HAVE A DREAM! ”}}$
 <div align="center">
   
 [ᴀᴛᴀ](https://aozoranomemory.atabook.org/)
-⠀[sᴛʀᴀᴡ](https://aozora-no-memory.straw.page/)
+⠀[sᴛʀᴀᴡ](https://starseek--wayfarer.straw.page/)
 ⠀[ᴘʀɴs](https://en.pronouns.page/@AozoraNoMemory)
 
 <div align="center">
