@@ -1,18 +1,18 @@
 
   <p align="center">   
-$\color{#ec8131}{\textbf{ “ The future is within grasp , the dream belongs to all of us ”}}$
+$\color{#485f85}{\textbf{ “ The future is within grasp , the dream belongs to all of us ”}}$
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/20kupv.png" data-canonical-src="(https://files.catbox.moe/20kupv.png)"width="700" height="600">
+<img src="https://files.catbox.moe/qmcesx.png" width="700" height="600">
 </p>
 
   <p align="center">   
-$\color{#ec8131}{\textbf{ “ WE HAVE A DREAM! ”}}$
+$\color{#485f85}{\textbf{ “ WE HAVE A DREAM! ”}}$
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/lnrw9q.gif" 
+<img src="https://files.catbox.moe/w6zwka.jpg" width="500" height="300">
 </p>
 
 <div align="center">
@@ -29,5 +29,5 @@ $\color{#ec8131}{\textbf{ “ WE HAVE A DREAM! ”}}$
 
 
 <p align="center">
-<img src="https://files.catbox.moe/71kfzc.webp"
+<img src="https://files.catbox.moe/oyv2d7.webp"
 </p>
