@@ -17,7 +17,7 @@ $\color{#485f85}{\textbf{ “ WE HAVE A DREAM! ”}}$
 
 <div align="center">
   
-[ᴀᴛᴀ](https://aozoranomemory.atabook.org/)
+[ᴀᴛᴀ](https://rebellionstar.atabook.org/)
 ⠀[sᴛʀᴀᴡ](https://starseek--wayfarer.straw.page/)
 ⠀[ᴘʀɴs](https://en.pronouns.page/@Rebellion-Star)
 
