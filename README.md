@@ -19,7 +19,7 @@ $\color{#ec8131}{\textbf{ “ WE HAVE A DREAM! ”}}$
   
 [ᴀᴛᴀ](https://aozoranomemory.atabook.org/)
 ⠀[sᴛʀᴀᴡ](https://starseek--wayfarer.straw.page/)
-⠀[ᴘʀɴs](https://en.pronouns.page/@AozoraNoMemory)
+⠀[ᴘʀɴs](https://en.pronouns.page/@Rebellion-Star)
 
 <div align="center">
   
